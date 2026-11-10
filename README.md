@@ -14,8 +14,11 @@ Fusing Italian spatial heritage with German precision engineering across Rome, C
 
 ---
 
-### 🌐 Connect & Explore
-- 🏛️ **Official Studio Platform**: [romartestudio.com](https://romartestudio.com/)
+### 🌐 Verified Studio Profiles & Portfolios
+- 🏛️ **Architizer**: [RomArte Studio on Architizer](https://architizer.com/firms/romarte-studio/)
+- 🎨 **Behance**: [Adamo Azzam / RomArte Studio Portfolio](https://www.behance.net/adamazzam2)
+- 🏢 **Crunchbase**: [RomArte Studio on Crunchbase](https://www.crunchbase.com/organization/romarte-studio)
+- 📐 **Archello**: [RomArte Studio on Archello](https://archello.com/brand/romarte-studio)
+- 🌐 **Official Studio Platform**: [romartestudio.com](https://romartestudio.com/)
 - 📸 **Instagram**: [@romarte.design](https://instagram.com/romarte.design)
-- 💼 **Direct Email**: [adam@romartestudio.com](mailto:adam@romartestudio.com) / [romarte.design.studio@gmail.com](mailto:romarte.design.studio@gmail.com)
-- 📍 **Offices**: Rome (Italy) · Cairo (Egypt) · Dubai (UAE)
+- 💼 **Direct Inquiries**: [adam@romartestudio.com](mailto:adam@romartestudio.com) / [romarte.design.studio@gmail.com](mailto:romarte.design.studio@gmail.com)
